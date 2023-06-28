@@ -1,1 +1,2 @@
-Ricardo Rosero
+Ricardo Rosero - Cristian Moreno
+
